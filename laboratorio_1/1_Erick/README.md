@@ -1,0 +1,2 @@
+Erick Gabriel Alarcon Albornoz
+Ingenieria Mecatronica
